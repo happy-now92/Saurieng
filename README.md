@@ -1,3 +1,3 @@
 # Saurieng
 Hieusaurieng 
-không đi làm 
+đi chơi thôi 
